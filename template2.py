@@ -4,7 +4,7 @@ We are in peptide business since 2016. We can ship to the UK, EU and the USA.
 Here is the drop shipping price and the USA stock list, if you need please let me know. 
  
 
-Item  Specification 
+Item    Specification    Price
 BPC157 5mg/vial    $ 4.50
 CJC-1295 (DAC)  2mg/vial $ 10.00
 CJC-1295 (with out DAC) 2mg/vial $  4.50
