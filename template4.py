@@ -7,7 +7,7 @@ We can provide the drop shipping service in the USA, if interested please let me
 
 Here is our USA warehouse 1 stock, welcome to inquiry
 
-USA New York stock (June-20-2024)		
+USA New York stock (June-24-2024)		
 Item	Specification	Quantity
 HCG	5000iu	3000
 HGH Pharm(99%)	10iu	500
